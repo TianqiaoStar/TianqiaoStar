@@ -3,7 +3,8 @@
 
 
 
-Heyo! More info on strawpage!
+Heyo! More info on strawpage! 
+ my main interests are Project moon and Umamusume at the moment
 
 <img src="https://github.com/user-attachments/assets/061d031a-fcff-4079-bdb4-ca38531300a4" />
 
