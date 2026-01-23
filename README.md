@@ -5,7 +5,9 @@
 
 Heyo! More info on strawpage! 
 
-my main interests are Project moon and Umamusume at the moment
+my main interests are Project moon and SCP at the moment
+
+Alts: @G0odMeowning @FloorOfReligion 
 
 <img src="https://github.com/user-attachments/assets/061d031a-fcff-4079-bdb4-ca38531300a4" />
 
