@@ -23,12 +23,7 @@ I block freely!!!
 
 I am a minor
 
-<img src="https://github.com/user-attachments/assets/04bf0715-1cb5-4428-a410-3b59cf8de1da" />
 
-
-
-
-stay gold stamp by @merislwtte on tumblr!
 
 
 <img src="https://github.com/user-attachments/assets/c8eb7f83-8f15-4be1-9148-e24b73143d22" />
