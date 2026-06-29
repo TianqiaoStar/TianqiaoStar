@@ -11,7 +11,7 @@ Alts: @G0odMeowning @FloorOfReligion
 
 <img src="https://github.com/user-attachments/assets/061d031a-fcff-4079-bdb4-ca38531300a4" />
 
-I go by Yan Qing online, but my strawpage have a list of other names I go by (online only)
+I go by Yan Qing online, but my strawpage has a list of other names I go by (online only)
 
 
 I block freely!!!
